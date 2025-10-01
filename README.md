@@ -4,7 +4,7 @@
 ![blinkiesCafe-qk](https://github.com/user-attachments/assets/e04bf010-75ad-4e34-af5e-45883eb69eb2)
 ![blinkiesCafe-GY](https://github.com/user-attachments/assets/27488607-bb71-46fa-a159-91816d655496)
 ![blinkiesCafe-zh](https://github.com/user-attachments/assets/a714c885-305b-4772-8ece-925307129cea)                                                                                    
-                          $\textcolor{teal}{\textsf{❝ Ithaqua ? That guy ? He's a sore loser . god I Love Him . ❞}}$
+                       $\textcolor{teal}{\textsf{❝ Ithaqua ? That guy ? He's a sore loser . god I Love Him . ❞}}$
 <img width="977" height="288" alt="image-ba0d-gradientmap pro" src="https://github.com/user-attachments/assets/3abd2554-902a-46f6-8384-5c01fa6564e6" />
          
          
