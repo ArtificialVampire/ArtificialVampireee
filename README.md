@@ -3,7 +3,7 @@
 ![blinkiesCafe-dj](https://github.com/user-attachments/assets/9172307a-ebad-46c4-9ce4-bdfccb072236)
 ![blinkiesCafe-qk](https://github.com/user-attachments/assets/e04bf010-75ad-4e34-af5e-45883eb69eb2)
 ![blinkiesCafe-GY](https://github.com/user-attachments/assets/27488607-bb71-46fa-a159-91816d655496)
-![blinkiesCafe-TD](https://github.com/user-attachments/assets/a6c4003d-9bb8-40b9-9562-7b303824a887)
+![blinkiesCafe-sg](https://github.com/user-attachments/assets/eb98e1cc-e0f0-4dc3-afbe-2e57655f50d5)
 ![blinkiesCafe-zh](https://github.com/user-attachments/assets/a714c885-305b-4772-8ece-925307129cea)
 
 <img width="977" height="288" alt="image-ba0d-gradientmap pro" src="https://github.com/user-attachments/assets/3abd2554-902a-46f6-8384-5c01fa6564e6" />
